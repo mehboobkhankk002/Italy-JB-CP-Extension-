@@ -1,13 +1,11 @@
 # Italy JBBattery CP Extension
 
-# README #
+Supplant your old lead-corrosive, gel and AGM batteries with a battery from Lithium Battery Power, one of the world's driving makers of lithium-particle batteries. 
 
-Le batterie al litio JBBATTERY sono l'ideale per le applicazioni che richiedono molta energia. Progettate specificamente per funzionare in applicazioni di magazzino su più turni ad alta intensità, le batterie al litio offrono vantaggi significativi rispetto alla tecnologia al piombo acido datata. Le batterie JBBATTERY si ricaricano più velocemente, lavorano di più, durano più a lungo e sono praticamente esenti da manutenzione.
+JBBATTERY lithium-particle batteries are viable with any application controlled by lead-corrosive, gel or AGM batteries. The BMS (Battery Management System) incorporated into our lithium batteries is modified to guarantee that our cells can withstand significant degrees of maltreatment without battery disappointment. The BMS is intended to expand battery execution via consequently adjusting cells, forestalling cheating or over-releasing. 
 
-Cosa potrebbe significare per la tua attività? Meno sostituzioni, minori costi di manodopera e minori tempi di fermo.
+JBBATTERY contrasts from any overabundance lithium-particle battery relationship because of the reliable quality and execution of our phones. We address amazing master in selling exceptional lithium batteries for golf truck, forklift, boats, wearing vehicles, sunlight based board banks, strength electric vehicles, no doubt. Starting as of late, we have passed on in excess of 15,000 batteries all through the planet. 
 
-JBBATTERY non solo ha uno dei più grandi inventari di batterie LiFEPO4 al mondo, ma abbiamo anche la capacità di costruire batterie personalizzate per praticamente qualsiasi applicazione. Un esempio sono le nostre batterie personalizzate da 24 V, 36 V e 48 V costruite appositamente per i motori da traina. Mai prima d'ora i diportisti erano stati in grado di viaggiare ulteriormente con una batteria per motore da traina.
+Despite the way that JBBATTERY has one of the best LiFEPO4 battery stocks on earth, we correspondingly can assemble custom batteries for essentially any application. One model is our devoted 24V, 36V and 48V batteries that are astoundingly gotten ready for savaging engines. Boat voyagers have reliably been not ready to travel further on a savaging engine battery. 
 
-Le batterie agli ioni di litio di JBBATTERY sono compatibili con qualsiasi applicazione alimentata da batterie al piombo, gel o AGM. Il BMS (Battery Management System) integrato installato nelle nostre batterie al litio è programmato per garantire che le nostre celle possano resistere ad alti livelli di abuso senza guasti della batteria. Il BMS è progettato per massimizzare le prestazioni della batteria bilanciando le celle automaticamente, prevenendo sovraccarichi o scaricamenti eccessivi.
-
-JBBATTERY è diversa da tutte le altre aziende produttrici di batterie agli ioni di litio per l'affidabilità e le prestazioni delle nostre celle. Siamo specializzati nella vendita di batterie al litio di alta qualità per golf cart, carrelli elevatori, barche, camper, banchi di pannelli solari, veicoli elettrici speciali e altro ancora. Finora abbiamo distribuito oltre 15.000 batterie in tutto il mondo.
+This is the thing that JBBATTERY puts crucial time in, discovering judicious reactions for testing energy conditions. A total objective of lithium battery is to satisfy the necessity for dependable and gainful energy of people later on. Make an effort not to save a second to contact JBBATTERY straightforwardly with any solicitations considering utilizing to be batteries as the major wellspring of energy.
